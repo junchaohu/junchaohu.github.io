@@ -1,6 +1,6 @@
 ### You want to know me?
 
-* Wechat ID: lengtuuuu.
+* Wechat ID: `lengtuuuu`.
 * feel free to contact me. 
 * I'd like to know people.
 
